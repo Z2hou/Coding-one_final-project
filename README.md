@@ -1,3 +1,6 @@
 # Coding-one_final-project
-Final project from coding one from Zhou Zhou.
+“GROWTH” by Zhou Zhou (0520221)
+
+Video link: https://vimeo.com/777986989
+
 FSAFDASDFF
